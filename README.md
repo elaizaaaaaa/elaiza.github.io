@@ -1,5 +1,5 @@
 # elaizaaaaaaa.github.io
-**Elaiza Grace Romero** :🫶:
+**Elaiza Grace Romero** 
 
 Boo! hi anteh :)
 
